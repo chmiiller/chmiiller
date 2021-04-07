@@ -1,4 +1,4 @@
-Front End Developer - Dark Theme everything 🖤
+Dark Theme everything 🖤
 
 
 <!--
